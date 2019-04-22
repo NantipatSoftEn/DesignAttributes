@@ -49,5 +49,23 @@ Muscle strength -- เสริมสร้างกำลัง
 
 Flexibility -- เพิ่มความยืดหยุ่นให้กับร่างกาย
 
+https://www.honestdocs.co/choose-right-exercise-to-fit-needs 
+
+ข้างบนคือประเภทการออกกำลังกาย เราต้องหาปัจจัยในการเลือก ซึ่งตอนนี้ยังไม่รู้
+
+
+### ปัจจัยการเลือกประเภทของเพลง
+
+ตัวเพลง
+
+การโปรโมท
+
+Branding 
+
+NetWrok Effect
+
+https://medium.com/@kaminph/%E0%B8%AD%E0%B8%B0%E0%B9%84%E0%B8%A3%E0%B8%97%E0%B8%B3%E0%B9%83%E0%B8%AB%E0%B9%89%E0%B9%80%E0%B8%9E%E0%B8%A5%E0%B8%87%E0%B8%AE%E0%B8%B4%E0%B8%95%E0%B9%83%E0%B8%99%E0%B8%9B%E0%B8%B5-2017-2018-%E0%B8%AD%E0%B8%98%E0%B8%B4%E0%B8%9A%E0%B8%B2%E0%B8%A2%E0%B8%94%E0%B9%89%E0%B8%A7%E0%B8%A2-data-%E0%B8%88%E0%B8%B2%E0%B8%81-spotify-c2bba2339c18?fbclid=IwAR27nl2n_JvI8JFKZvUbayDv7T_3al2DroQSQlWk4UYx-JYBbaJMtsQ46as
+
+---
 
 > 6 attribute 50 row
