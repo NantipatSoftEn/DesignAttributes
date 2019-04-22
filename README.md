@@ -38,4 +38,16 @@
 http://www.pooyingnaka.com/content/content.php?No=5989
 
 
+### การเลือกประเภทของการออกกำลังกาย
+
+
+Cardio -- พัฒนาของระบบการสูบฉีดเลือด
+
+Body composition --  ร่างกายบางส่วนใหญ่ขึ้นหรือเล็กลงตามที่เราต้องการ
+
+Muscle strength -- เสริมสร้างกำลัง
+
+Flexibility -- เพิ่มความยืดหยุ่นให้กับร่างกาย
+
+
 > 6 attribute 50 row
